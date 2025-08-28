@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: anything and everything. 
 - 📫 How to reach me: By discord (my notifications are ALWAYS ON).
 - 😄 Pronouns: He / Him.
-- ⚡ Fun fact: I am a Tri-Citizen (of Macedonia, Austrailia, and the U.S.A.).
+- ⚡ Fun fact: Every single morning, I make myself the exact same chocolate-cinnamon smoothie with almond butter, Greek yogurt, and almond milk.
 
 <!---
 george-mitrev-intramotev/george-mitrev-intramotev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
